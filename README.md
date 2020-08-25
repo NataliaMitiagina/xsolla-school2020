@@ -1,0 +1,1 @@
+# xsolla-school2020
